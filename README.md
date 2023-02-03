@@ -1,2 +1,0 @@
-# ayaz
-The king
